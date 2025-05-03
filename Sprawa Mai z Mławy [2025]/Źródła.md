@@ -16,15 +16,10 @@
 
 [Zabił 16-letnią Maję z wyjątkowym okrucieństwem! Matka Bartłomieja G. broni syna. "Nigdy nikogo nie pobił”](https://www.se.pl/warszawa/zaplanowal-morderstwo-16-letniej-mai-a-potem-wyjechal-bartlomiej-g-czeka-na-ekstradycje-do-polski-aa-UWAR-GrNd-L3FD.html)
 
-[Zaginięcie Mai Kowalskiej](https://forumwanda.pl/viewtopic.php?p=1657269)
 
 [Z Mazowieckiego: 16-latka z Mławy brutalnie zamordowana! Podejrzany zatrzymany w Grecji... na szkolnej wycieczce!](https://siedlcesiedzieje.pl/z-siedlec/z-mazowieckiego-16-latka-z-mlawy-brutalnie-zamordowana-podejrzany-zatrzymany-w-grecji-na-szkolnej-wycieczce/5pgMGwRc8T7REAvlbA0F)
 
 [#PILNE Zabójstwo 16-latki w Mławie - podejrzany o morderstwo zatrzymany w Grecji](https://ciechanow.cozadzien.pl/region/pilne-zabojstwo-16-latki-w-mlawie-podejrzany-o-morderstwo-zatrzymany-w-grecji/15410)
-
-[WIADOMOŚCI](https://radio7.pl/category/wiadomosci-z-powiatow/)
-
-[Zatrzymajmy falę hejtu w Mławie!](https://naszamlawa.pl/wiadomosci/zatrzymajmy-fale-hejtu-w-mlawie/)
 
 [To z nią Maja kontaktowała się tuż przed tragedią. Teraz Justyna przerwała milczenie](https://www.fakt.pl/wydarzenia/zbrodnia-w-mlawie-do-niej-byl-ostatni-sms-od-mai-justyna-przerwala-milczenie/25kvm8l)
 
